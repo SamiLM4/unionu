@@ -168,7 +168,7 @@ Documento a fim de realizar um anúncio, como oficialização de aliança ou aco
 
 ## Documento de Resolução de Crise
 
-Documento para resolver e/ou oficializar a resolução de uma crise no comitê, deve ser apresentado ao final da crise após um consendo da maioria dos delegados.
+Documento para resolver e/ou oficializar a resolução de uma crise no comitê, deve ser apresentado ao final da crise após um consenso da maioria dos delegados.
 
 ## Emenda
 
