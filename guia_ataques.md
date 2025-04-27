@@ -6,6 +6,8 @@ https://vestibular.uol.com.br/resumo-das-disciplinas/atualidades/imigracao-nos-e
 # 🇨🇺 Cuba
 Violações de direitos humanos: Repressão a protestos e detenções arbitrárias. Após os protestos de julho de 2021, mais de 700 pessoas, incluindo mulheres e menores, permanecem presas, muitas vezes sem julgamento justo e sofrendo maus-tratos.
 
+https://www.hrw.org/pt/news/2022/07/11/cuba-crackdown-protests-creates-rights-crisis
+
 # 🇸🇻 El Salvador
 Violações de direitos humanos: Estado de exceção prolongado com detenções em massa. Desde março de 2022, mais de 83.000 pessoas foram detidas, muitas vezes arbitrariamente, com relatos de tortura, desaparecimentos forçados e mortes sob custódia.
 
