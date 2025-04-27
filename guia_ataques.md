@@ -1,6 +1,8 @@
 # 🇺🇸 Estados Unidos
 Violações de direitos humanos: Deportações injustas e detenções arbitrárias. Um exemplo é o caso de Kilmar Ábrego García, deportado erroneamente para El Salvador, onde foi preso sem julgamento adequado, desafiando ordens judiciais para seu retorno.
 
+https://vestibular.uol.com.br/resumo-das-disciplinas/atualidades/imigracao-nos-eua-a-politica-de-tolerancia-zero-e-o-drama-das-criancas-na-fronteira.htm
+
 # 🇨🇺 Cuba
 Violações de direitos humanos: Repressão a protestos e detenções arbitrárias. Após os protestos de julho de 2021, mais de 700 pessoas, incluindo mulheres e menores, permanecem presas, muitas vezes sem julgamento justo e sofrendo maus-tratos.
 
