@@ -11,6 +11,8 @@ https://www.hrw.org/pt/news/2022/07/11/cuba-crackdown-protests-creates-rights-cr
 # 🇸🇻 El Salvador
 Violações de direitos humanos: Estado de exceção prolongado com detenções em massa. Desde março de 2022, mais de 83.000 pessoas foram detidas, muitas vezes arbitrariamente, com relatos de tortura, desaparecimentos forçados e mortes sob custódia.
 
+https://www.hrw.org/pt/news/2024/07/16/el-salvador-rights-violations-against-children-state-emergency
+
 # 🇬🇹 Guatemala
 Violações de direitos humanos: Ataques a defensores de direitos humanos e violência de gênero. Em 2022, foram documentadas 3.574 agressões contra defensores de direitos humanos. Além disso, há altos índices de violência contra mulheres e meninas, com mais de 22.000 casos registrados em 2023. 
 
