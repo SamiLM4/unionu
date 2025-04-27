@@ -161,3 +161,7 @@ https://www.jusbrasil.com.br/noticias/defensores-publicos-redigem-declaracao-da-
 https://siplan.segeplan.gob.gt/documentos/1640_16243_PLAN%20ESTATEGICO%202022%20-%202026%20abril%202021%20ficha%20tecnica.pdf
 https://iepades.org/wp-content/uploads/2023/03/Violencia-contra-mujeres-08.III_.2023.pdf
 https://presupuestoygenero.net/guatemala/
+
+![image](https://github.com/user-attachments/assets/12ece020-904b-49c2-b16c-c57fe77248bb)
+![image](https://github.com/user-attachments/assets/2826d1f0-9375-4f6f-812d-9ca23e659aff)
+
