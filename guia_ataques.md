@@ -165,3 +165,13 @@ https://presupuestoygenero.net/guatemala/
 ![image](https://github.com/user-attachments/assets/12ece020-904b-49c2-b16c-c57fe77248bb)
 ![image](https://github.com/user-attachments/assets/2826d1f0-9375-4f6f-812d-9ca23e659aff)
 
+# Discursos
+
+## Discurso 1
+  A Delegação da República da Guatemala reconhece SIM, os seus desafios internos a serem combatidos, contudo, diante da situação do seu país,
+sendo positiva ou negativa, e acentuando que não há problema nenhum em cada um defender a sua respectiva delegação, se suas condições permitirem,
+aceitaremos todo o suporte e acordos que possam nos ajudar, porém, se o seu país não possui essas condições, eu, como delegado da Guatemala, pressuponho que seja
+mais interessante você cuidar primeiramente de seus problemas internos do que apontar os desafios que eu e outras delegações estamos passando no momento, 
+caso, se for possível, em vez de cobrar medidas a serem tomadas no meu pais, por que não pode nos auxiliar, uma vez que sua delegação aparenta não enfrentar os problemas
+a qual eu enfrento? se você possui tanta "autoridade", por que em vez de só olhar e criticar, você não ajuda? Até porque olhar e criticar é fácil, portanto, 
+como não possuímos qualquer ajuda por sua parte, você não tem propriedade alguma de nos cobrar.  
