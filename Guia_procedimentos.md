@@ -4,11 +4,10 @@
 
 ### Presente
 
-Pode participar das votações.
+NAO PODE participar das votações.
 
 ### Presente votante
-
-Não pode participar das votações.
+OBRIGATÓRIO participar das votações.
 
 ## Quórum
 
