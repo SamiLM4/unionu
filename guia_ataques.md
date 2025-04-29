@@ -165,7 +165,7 @@ https://presupuestoygenero.net/guatemala/
 ![image](https://github.com/user-attachments/assets/12ece020-904b-49c2-b16c-c57fe77248bb)
 ![image](https://github.com/user-attachments/assets/2826d1f0-9375-4f6f-812d-9ca23e659aff)
 
-# Discursos
+# Discursos dia 2
 
 ## Discurso 1
   A Delegação da República da Guatemala reconhece SIM, os seus desafios internos a serem combatidos, contudo, diante da situação do seu país,
@@ -180,9 +180,6 @@ como não possuímos qualquer ajuda por sua parte, você não tem propriedade al
 
 1. Resposta à acusação por parte de países com histórico de repressão interna (ex: Rússia, China, Irã):
 
-Delegados,
-
-A Guatemala reconhece seus desafios, mas não aceitará lições de países que reprimem sistematicamente vozes dissidentes, silenciam jornalistas e negam liberdades fundamentais ao seu povo. Ao contrário de quem institucionaliza a repressão, nosso governo enfrenta os problemas com transparência e reformas democráticas reais. Se vamos falar de direitos humanos, que todos estejam dispostos a se olhar no espelho.
 
 
 ---
