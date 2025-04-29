@@ -1,60 +1,60 @@
 # 🇺🇸 Estados Unidos
-Violações de direitos humanos: Deportações injustas e detenções arbitrárias. Um exemplo é o caso de Kilmar Ábrego García, deportado erroneamente para El Salvador, onde foi preso sem julgamento adequado, desafiando ordens judiciais para seu retorno.
+A Delegação da Guatemala expressa preocupação com a persistência da pobreza extrema em comunidades marginalizadas nos Estados Unidos, especialmente entre populações indígenas e afro-americanas. Além disso, observamos desafios significativos no acesso equitativo à educação e à saúde, que comprometem os direitos fundamentais desses grupos.
+
 
 https://vestibular.uol.com.br/resumo-das-disciplinas/atualidades/imigracao-nos-eua-a-politica-de-tolerancia-zero-e-o-drama-das-criancas-na-fronteira.htm
 
 # 🇨🇺 Cuba
-Violações de direitos humanos: Repressão a protestos e detenções arbitrárias. Após os protestos de julho de 2021, mais de 700 pessoas, incluindo mulheres e menores, permanecem presas, muitas vezes sem julgamento justo e sofrendo maus-tratos.
+A Delegação da Guatemala manifesta preocupação com as restrições à liberdade de expressão e de imprensa em Cuba, que limitam o debate público e a participação cidadã. Também observamos desafios no acesso à informação e na proteção dos direitos dos migrantes que buscam melhores condições de vida.
 
 https://www.hrw.org/pt/news/2022/07/11/cuba-crackdown-protests-creates-rights-crisis
 
 # 🇸🇻 El Salvador
-Violações de direitos humanos: Estado de exceção prolongado com detenções em massa. Desde março de 2022, mais de 83.000 pessoas foram detidas, muitas vezes arbitrariamente, com relatos de tortura, desaparecimentos forçados e mortes sob custódia.
-
-# 🇬🇹 Guatemala
-Violações de direitos humanos: Ataques a defensores de direitos humanos e violência de gênero. Em 2022, foram documentadas 3.574 agressões contra defensores de direitos humanos. Além disso, há altos índices de violência contra mulheres e meninas, com mais de 22.000 casos registrados em 2023. 
+A Delegação da Guatemala expressa preocupação com as condições de detenção em El Salvador, que, segundo organizações internacionais, podem violar os direitos humanos dos detidos. Além disso, observamos desafios na proteção dos direitos dos migrantes e refugiados que transitam pelo país.
 
 # 🇧🇷 Brasil
-Violações de direitos humanos: Violência policial e ataques a comunidades indígenas. Relatórios apontam para execuções extrajudiciais e invasões de terras indígenas, com falhas na proteção dos direitos dessas populações.
+A Delegação da Guatemala manifesta preocupação com os casos de trabalho análogo à escravidão no Brasil, especialmente no setor agrícola. Dados indicam que entre 1995 e 2023, mais de 631 mil pessoas foram resgatadas de condições degradantes de trabalho no país.
+
+https://tst.jus.br/-/estimativa-aponta-mais-de-1-4-milh%C3%A3o-de-v%C3%ADtimas-de-escravid%C3%A3o-moderna-em-pa%C3%ADses-de-l%C3%ADngua-portuguesa?utm_source=chatgpt.com
 
 # 🇻🇪 Venezuela
-Violações de direitos humanos: Repressão a opositores e crise humanitária. O governo tem sido acusado de tortura, detenções arbitrárias e uso excessivo da força contra manifestantes e dissidentes.
+A Delegação da Guatemala expressa profunda preocupação com a crise humanitária na Venezuela, que resultou em violações dos direitos dos refugiados e migrantes, além de restrições à liberdade de expressão e de imprensa.
 
 # 🇸🇴 Somália
-Violações de direitos humanos: Restrições à liberdade de expressão e violência de gênero. Jornalistas e defensores enfrentam assédio e detenções arbitrárias, enquanto casos de violência sexual não são adequadamente investigados.
+A Delegação da Guatemala manifesta preocupação com a situação de pobreza extrema e a falta de acesso à educação e à saúde na Somália, agravadas por conflitos armados e instabilidade política.
 
 # 🇲🇱 Mali
-Violações de direitos humanos: Conflitos armados e ataques a civis. Grupos armados e forças de segurança têm sido responsabilizados por execuções extrajudiciais, desaparecimentos forçados e violência sexual.
+A Delegação da Guatemala expressa preocupação com os relatos de trabalho análogo à escravidão e tráfico humano em Mali, que representam graves violações dos direitos humanos.
 
 # 🇱🇷 Libéria
-Violações de direitos humanos: Impunidade por crimes do passado e violência de gênero. A falta de responsabilização por crimes cometidos durante a guerra civil e a persistência de violência contra mulheres são preocupantes.
+A Delegação da Guatemala manifesta preocupação com os desafios enfrentados pela Libéria no combate à pobreza extrema e na garantia de acesso à educação e à saúde para sua população.
 
 # 🇩🇪 Alemanha
-Violações de direitos humanos: Discriminação racial e islamofobia. Casos de violência contra minorias étnicas e religiosas têm aumentado, com críticas à resposta das autoridades.
+A Delegação da Guatemala observa que, apesar dos avanços, a Alemanha enfrenta desafios relacionados à vigilância em massa e à privacidade, que requerem atenção para garantir o equilíbrio entre segurança e direitos individuais.
 
 # 🇫🇷 França
-Violações de direitos humanos: Uso excessivo da força por policiais e tratamento de migrantes. Protestos têm sido reprimidos com violência, e migrantes enfrentam condições precárias e deportações sumárias.
+A Delegação da Guatemala observa que, apesar dos avanços, Portugal enfrenta desafios na integração de migrantes e na garantia plena de seus direitos, incluindo acesso à educação e à saúde.
 
 # 🇵🇹 Portugal
 Violações de direitos humanos: Discriminação contra ciganos e minorias étnicas. Relatórios indicam desigualdade no acesso a serviços públicos e educação para essas comunidades.
 
 # 🇹🇷 Turquia
-Violações de direitos humanos: Repressão a opositores e restrições à liberdade de expressão. Milhares enfrentam julgamentos injustos por supostos vínculos com o movimento Gülen, e protestos são frequentemente proibidos ou reprimidos violentamente.
+A Delegação da Guatemala manifesta preocupação com as restrições à liberdade de expressão e de imprensa na Turquia, que comprometem o debate democrático e os direitos fundamentais.
 
 # 🇷🇺 Rússia
-Violações de direitos humanos: Supressão de dissidentes e censura. O governo tem fechado organizações independentes, prendido opositores e controlado a mídia para silenciar críticas.
+A Delegação da Guatemala expressa profunda preocupação com as violações dos direitos humanos na Rússia, incluindo restrições à liberdade de expressão, repressão a opositores políticos e casos de trabalho análogo à escravidão .​
 
 # 🇨🇳 China
-Violações de direitos humanos: Perseguição a minorias étnicas e religiosas. A repressão aos uigures em Xinjiang, com detenções em massa e vigilância, tem sido amplamente denunciada.
+A Delegação da Guatemala manifesta preocupação com as violações dos direitos humanos na China, incluindo a repressão a minorias étnicas, restrições à liberdade de expressão e casos de trabalho forçado .​
 
 # 🇻🇳 Vietnã
-Violações de direitos humanos: Restrições à liberdade de expressão e repressão a ativistas. Blogueiros e defensores de direitos humanos enfrentam prisões arbitrárias e censura.
+A Delegação da Guatemala expressa preocupação com as restrições à liberdade de expressão e de imprensa no Vietnã, bem como com os relatos de trabalho forçado e tráfico humano .​
 
 # 🇮🇳 Índia
-Violações de direitos humanos: Discriminação contra minorias religiosas e repressão a protestos. Leis controversas têm sido usadas para silenciar dissidentes e marginalizar comunidades muçulmanas.
+A Delegação da Guatemala manifesta preocupação com os desafios enfrentados pela Índia na proteção dos direitos das minorias religiosas e étnicas, bem como com os casos de trabalho análogo à escravidão.​
 
 # 🇮🇷 Irã
-Violações de direitos humanos: Repressão a protestos e discriminação de gênero. Mulheres enfrentam restrições severas, e manifestações são frequentemente reprimidas com violência.
+A Delegação da Guatemala expressa profunda preocupação com as violações dos direitos humanos no Irã, incluindo restrições à liberdade de expressão, repressão a opositores políticos e casos de trabalho forçado.​
 
 # DEFESA
 
@@ -178,11 +178,6 @@ como não possuímos qualquer ajuda por sua parte, você não tem propriedade al
 
 # DISCURSOS DE ATAQUE 
 
-1. Resposta à acusação por parte de países com histórico de repressão interna (ex: Rússia, China, Irã):
-
-
-
----
 
 2. Resposta a críticas de países desenvolvidos (ex: EUA, França, Reino Unido):
 
@@ -198,3 +193,4 @@ A Guatemala não nega suas dificuldades, mas não tolerará que países historic
 Delegados,
 
 A Guatemala trabalha com seriedade pela promoção dos direitos humanos, mas rejeita críticas vazias de países que também enfrentam altos índices de violência, repressão e desigualdade. Ao invés de acusações mútuas, deveríamos fortalecer a cooperação regional com base no respeito e na verdade. Nenhum de nós está livre de falhas — mas alguns, infelizmente, insistem em escondê-las sob discursos populistas.
+
