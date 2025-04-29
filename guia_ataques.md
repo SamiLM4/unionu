@@ -175,3 +175,29 @@ mais interessante você cuidar primeiramente de seus problemas internos do que a
 caso, se for possível, em vez de cobrar medidas a serem tomadas no meu pais, por que não pode nos auxiliar, uma vez que sua delegação aparenta não enfrentar os problemas
 a qual eu enfrento? se você possui tanta "autoridade", por que em vez de só olhar e criticar, você não ajuda? Até porque olhar e criticar é fácil, portanto, 
 como não possuímos qualquer ajuda por sua parte, você não tem propriedade alguma de nos cobrar.  
+
+# DISCURSOS DE ATAQUE 
+
+1. Resposta à acusação por parte de países com histórico de repressão interna (ex: Rússia, China, Irã):
+
+Delegados,
+
+A Guatemala reconhece seus desafios, mas não aceitará lições de países que reprimem sistematicamente vozes dissidentes, silenciam jornalistas e negam liberdades fundamentais ao seu povo. Ao contrário de quem institucionaliza a repressão, nosso governo enfrenta os problemas com transparência e reformas democráticas reais. Se vamos falar de direitos humanos, que todos estejam dispostos a se olhar no espelho.
+
+
+---
+
+2. Resposta a críticas de países desenvolvidos (ex: EUA, França, Reino Unido):
+
+Delegados,
+
+A Guatemala não nega suas dificuldades, mas não tolerará que países historicamente responsáveis por intervenções externas e políticas de exploração venham nos apontar o dedo. Enquanto enfrentamos nossas feridas com coragem e reformas, muitos aqui naturalizam desigualdades, xenofobia e racismo dentro de suas próprias fronteiras. Se desejam falar de direitos humanos, que o façam com coerência e responsabilidade histórica.
+
+
+---
+
+3. Resposta a países da América Latina (ex: El Salvador, México, Nicarágua):
+
+Delegados,
+
+A Guatemala trabalha com seriedade pela promoção dos direitos humanos, mas rejeita críticas vazias de países que também enfrentam altos índices de violência, repressão e desigualdade. Ao invés de acusações mútuas, deveríamos fortalecer a cooperação regional com base no respeito e na verdade. Nenhum de nós está livre de falhas — mas alguns, infelizmente, insistem em escondê-las sob discursos populistas.
