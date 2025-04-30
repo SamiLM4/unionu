@@ -77,37 +77,6 @@ A Guatemala reafirma seu compromisso com os direitos humanos, colaborando com or
 
 O país continua a trabalhar na implementação de reformas legais e institucionais para fortalecer o Estado de Direito e proteger os direitos fundamentais de todos os guatemaltecos.​
 
-📚 Fontes contra Guatemala:
-
-https://prensacomunitaria.org/2022/08/agresiones-contra-defensores-de-derechos-humanos-crecen-exponencialmente-en-el-gobierno-de-giammattei/?utm_source=chatgpt.com
-https://www.cidse.org/pt/2023/03/10/human-rights-crisis-in-guatemala/?utm_source=chatgpt.com
-https://www.prensalibre.com/guatemala/justicia/denuncias-por-violencia-contra-la-mujer-aumentaron-15-en-el-2024/?utm_source=chatgpt.com
-https://www.elpais.com.co/mundo/preocupacion-por-agresiones-a-defensores-de-derechos-humanos-en-guatemala.html?utm_source=chatgpt.com
-https://www.hrw.org/es/news/2025/02/17/guatemala-respuesta-fallida-la-violencia-sexual-contra-ninas
-https://patrialatina.com.br/guatemala-denuncias-de-violencia-contra-mulheres-cresceram-em-2024/
-https://www.prensalibre.com/guatemala/justicia/denuncias-por-violencia-contra-la-mujer-aumentaron-15-en-el-2024/
-https://www12.senado.leg.br/radio/1/noticia/2024/11/25/anuario-da-onu-revela-aumento-da-violencia-contra-a-mulher-em-todos-os-continentes
-https://rrppguatemala.com/2024/03/01/oacnudh-vio-deterioro-de-las-desigualdades-en-guatemala/
-https://www.infobae.com/america/agencias/2024/01/02/delitos-contra-mujeres-y-menores-en-guatemala-se-incrementaron-un-42-durante-2023/
-https://www.prensalibre.com/guatemala/comunitario/violencia-contra-la-mujer-mas-de-37-mil-mujeres-han-sido-victimas-en-guatemala-durante-2023/
-https://gauchazh.clicrbs.com.br/mundo/noticia/2023/03/agressoes-a-defensores-de-direitos-humanos-causam-preocupacao-na-guatemala-clflqdvpb003s01jg0rj0084e.html
-https://noticias.uol.com.br/ultimas-noticias/afp/2023/03/23/agressoes-a-defensores-de-direitos-humanos-causam-preocupacao-na-guatemala.htm
-https://www.cidse.org/pt/2023/03/10/human-rights-crisis-in-guatemala/
-https://iepades.org/2023/03/08/datos-sobre-violencia-contra-las-mujeres-en-guatemala-marzo-2023/
-https://www.ohchr.org/es/documents/country-reports/ahrc5223-situation-human-rights-guatemala-report-united-nations-high
-https://www.infobae.com/america/america-latina/2022/08/26/defensores-de-los-derechos-humanos-alertaron-sobre-el-incremento-de-la-represion-y-persecucion-politica-en-guatemala/
-https://crnnoticias.com/guatemala-suma-casi-600-agresiones-contra-defensores-de-derechos-humanos-en-2022/
-https://www.resumenlatinoamericano.org/2022/08/25/guatemala-agresiones-contra-defensores-de-derechos-humanos-crecen-exponencialmente-en-el-gobierno-de-giammattei/
-https://gauchazh.clicrbs.com.br/mundo/noticia/2022/08/organizacao-denuncia-aumento-de-agressoes-a-defensores-de-direitos-humanos-na-guatemala-cl77zm2u1000w01jpd5nt0dqq.html
-https://prensacomunitaria.org/2022/08/agresiones-contra-defensores-de-derechos-humanos-crecen-exponencialmente-en-el-gobierno-de-giammattei/
-https://noticias.uol.com.br/ultimas-noticias/afp/2022/06/02/cidh-inclui-guatemala-em-lista-de-paises-com-graves-de-violacoes-dos-direitos-humanos.htm
-https://patrialatina.com.br/ser-mulher-e-uma-questao-de-risco-na-guatemala/
-https://anistia.org.br/informe/hora-de-acabar-com-a-inercia-em-relacao-aos-assassinatos-de-mulheres-na-guatemala/
-https://iepades.org/wp-content/uploads/2023/03/Violencia-contra-mujeres-08.III_.2023.pdf
-https://www.elpais.com.co/mundo/preocupacion-por-agresiones-a-defensores-de-derechos-humanos-en-guatemala.html
-https://www.cepal.org/pt-br/comunicados/menos-11-mulheres-sao-vitimas-feminicidio-cada-dia-america-latina-caribe
-https://www.undp.org/es/guatemala/blog/continuum-de-la-violencia-contra-las-mujeres-y-ninas
-
 # Fontes pasa Defesa:
 
 🛡️ Proteção a Defensores dos Direitos Humanos
