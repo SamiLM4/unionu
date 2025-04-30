@@ -1,60 +1,61 @@
-# 🇺🇸 Estados Unidos
-A Delegação da Guatemala expressa preocupação com a persistência da pobreza extrema em comunidades marginalizadas nos Estados Unidos, especialmente entre populações indígenas e afro-americanas. Além disso, observamos desafios significativos no acesso equitativo à educação e à saúde, que comprometem os direitos fundamentais desses grupos.
+# 🇺🇸 Estados Unidos - ALIADO
+Os Estados Unidos da América é um tradicional aliado á Guatemala, costuma-se sempre haver alinhamente por parte das duas delegações em relação ás discussões. Portanto, não apresentamos conflito algum. Não entendemos o motivo do ataque.
 
 
-https://vestibular.uol.com.br/resumo-das-disciplinas/atualidades/imigracao-nos-eua-a-politica-de-tolerancia-zero-e-o-drama-das-criancas-na-fronteira.htm
+Projeto K'atun em parceria com os EUA.
 
-# 🇨🇺 Cuba
-A Delegação da Guatemala manifesta preocupação com as restrições à liberdade de expressão e de imprensa em Cuba, que limitam o debate público e a participação cidadã. Também observamos desafios no acesso à informação e na proteção dos direitos dos migrantes que buscam melhores condições de vida.
+Por parte da Guatemala, reconhecemos os esforços dos Estados Unidos em promover a liberdade de expressão e de imprensa, bem como em combater o tráfico humano por meio de legislações rigorosas e cooperação internacional. Não apresentamos conflito algum com a delegação.
 
-https://www.hrw.org/pt/news/2022/07/11/cuba-crackdown-protests-creates-rights-crisis
+# 🇨🇺 Cuba - NEUTRO
+A Delegação da Guatemala manifesta preucupação com às fortes denúncias à restrição da Liberdade por parte de Cuba. Também percebemos fortes desafios para o acesso à informação e também na proteção dos 
+direitos dos migrantes que buscam por melhores qualidade de vida.
 
-# 🇸🇻 El Salvador
-A Delegação da Guatemala expressa preocupação com as condições de detenção em El Salvador, que, segundo organizações internacionais, podem violar os direitos humanos dos detidos. Além disso, observamos desafios na proteção dos direitos dos migrantes e refugiados que transitam pelo país.
+# 🇸🇻 El Salvador - NEUTRO
+A Delegação da Guatemala demonstra-se preucupada com as condições de detenção em El Salvador, pois, segundo algumas organizações internacionais, pode haver violação dos direitos humanos dos detidos.
+Além disso, percebemos um desafio na proteção dos direitos dos migrantes e refugiados que passam pelo pais.
 
-# 🇧🇷 Brasil
-A Delegação da Guatemala manifesta preocupação com os casos de trabalho análogo à escravidão no Brasil, especialmente no setor agrícola. Dados indicam que entre 1995 e 2023, mais de 631 mil pessoas foram resgatadas de condições degradantes de trabalho no país.
+# 🇧🇷 Brasil - ALIADO
+A Delegação da Guatemala reconhece o Brasil como forte alidado, uma vez que por parte do Brasil, há fortes investimento no pais no setor de tecnologia e desenvolvimento. Portanto, não apresentamos conflito algum.
 
-https://tst.jus.br/-/estimativa-aponta-mais-de-1-4-milh%C3%A3o-de-v%C3%ADtimas-de-escravid%C3%A3o-moderna-em-pa%C3%ADses-de-l%C3%ADngua-portuguesa?utm_source=chatgpt.com
 
-# 🇻🇪 Venezuela
+# 🇻🇪 Venezuela - NEUTRO
 A Delegação da Guatemala expressa profunda preocupação com a crise humanitária na Venezuela, que resultou em violações dos direitos dos refugiados e migrantes, além de restrições à liberdade de expressão e de imprensa.
 
-# 🇸🇴 Somália
-A Delegação da Guatemala manifesta preocupação com a situação de pobreza extrema e a falta de acesso à educação e à saúde na Somália, agravadas por conflitos armados e instabilidade política.
+# 🇸🇴 Somália - CONTRA
+A Delegação da Guatemala se montra preocupada com a situação de pobreza extrema e a falta de acesso à educação e à saúde na Somália, porém, por mais que não apoiamos casos de intolêrancia religiosa, dominio de grupos extremistas e outros sérios fatores que colocam em risco os direitos humanos, entendemos que esse fato se deve por conta de conflitos armados e instabilidade política.
 
-# 🇲🇱 Mali
-A Delegação da Guatemala expressa preocupação com os relatos de trabalho análogo à escravidão e tráfico humano em Mali, que representam graves violações dos direitos humanos.
+# 🇲🇱 Mali - CONTRA
+A Delegação da Guatemala repudia qualquer forma de trabalho análogo à escravidão e o tráfico de seres humanos, principalmente que veem tido uma certa frequência na delegação de Mali, pois representarem graves violações dos direitos humanos.
 
-# 🇱🇷 Libéria
-A Delegação da Guatemala manifesta preocupação com os desafios enfrentados pela Libéria no combate à pobreza extrema e na garantia de acesso à educação e à saúde para sua população.
+# 🇱🇷 Libéria - CONTRA
+A Delegação da Guatemala expressa que diante dos desafios enfrentados pela Libéria no combate à pobreza extrema e na garantia de acesso à educação e à saúde para sua população, se mostra preucupada.
 
-# 🇩🇪 Alemanha
-A Delegação da Guatemala observa que, apesar dos avanços, a Alemanha enfrenta desafios relacionados à vigilância em massa e à privacidade, que requerem atenção para garantir o equilíbrio entre segurança e direitos individuais.
+# 🇩🇪 Alemanha - ALIADO
+A delegação da Guatemala se mostra satisfeita diante dos compromissos assumidos pela Alemanha diante da liberdade religiosa e dos direitos humanos.
 
-# 🇫🇷 França
-A Delegação da Guatemala observa que, apesar dos avanços, Portugal enfrenta desafios na integração de migrantes e na garantia plena de seus direitos, incluindo acesso à educação e à saúde.
+# 🇫🇷 França - ALIADO
+A delegação da Guatemala se mostra satisfeita diante dos compromissos assumidos pela França diante da liberdade religiosa e dos direitos humanos.
 
-# 🇵🇹 Portugal
-Violações de direitos humanos: Discriminação contra ciganos e minorias étnicas. Relatórios indicam desigualdade no acesso a serviços públicos e educação para essas comunidades.
+# 🇵🇹 Portugal - ALIADO
+A delegação da Guatemala se mostra satisfeita diante dos compromissos assumidos pela Portugal diante da liberdade religiosa e dos direitos humanos.
 
-# 🇹🇷 Turquia
-A Delegação da Guatemala manifesta preocupação com as restrições à liberdade de expressão e de imprensa na Turquia, que comprometem o debate democrático e os direitos fundamentais.
+# 🇹🇷 Turquia - NEUTRO
+A Delegação da Guatemala não possui nenhum problema com a Turquia, contudo, assumismo uma postura em que procuramos dialogo diante dos desafios enfrentados pela delegação como sendo parcial na Democracia e nas questões religiosas internas.
 
-# 🇷🇺 Rússia
-A Delegação da Guatemala expressa profunda preocupação com as violações dos direitos humanos na Rússia, incluindo restrições à liberdade de expressão, repressão a opositores políticos e casos de trabalho análogo à escravidão .​
+# 🇷🇺 Rússia -  NEUTRO
+A Guatemala não possui nenhum conflito com a Rússia e nem apresenta ser um aliado estratégico. e gostaríamos de manter normalmente às nossas relações de intercâmbios culturais e comerciais.
 
-# 🇨🇳 China
-A Delegação da Guatemala manifesta preocupação com as violações dos direitos humanos na China, incluindo a repressão a minorias étnicas, restrições à liberdade de expressão e casos de trabalho forçado .​
+# 🇨🇳 China - CHINA
+A Delegação da Guatemala enxerga que por parte da China, há falta com os garantimentos contra as violações dos direitos humanos na China, incluindo a repressão a minorias étnicas, restrições à liberdade de expressão e casos de trabalho forçado.​
 
-# 🇻🇳 Vietnã
-A Delegação da Guatemala expressa preocupação com as restrições à liberdade de expressão e de imprensa no Vietnã, bem como com os relatos de trabalho forçado e tráfico humano .​
+# 🇻🇳 Vietnã - NEUTRO
+A Delegação da Guatemala expressa preocupação com as restrições à liberdade de expressão e de imprensa no Vietnã, bem como com os relatos de trabalho forçado e tráfico humano.​
 
-# 🇮🇳 Índia
+# 🇮🇳 Índia - NEUTRO 
 A Delegação da Guatemala manifesta preocupação com os desafios enfrentados pela Índia na proteção dos direitos das minorias religiosas e étnicas, bem como com os casos de trabalho análogo à escravidão.​
 
-# 🇮🇷 Irã
-A Delegação da Guatemala expressa profunda preocupação com as violações dos direitos humanos no Irã, incluindo restrições à liberdade de expressão, repressão a opositores políticos e casos de trabalho forçado.​
+# 🇮🇷 Irã - CONTRA
+A Delegação da Guatemala cobra do Irã que medidas mais eficazes sejam tomadas afim de evitar violações dos direitos humanos, incluindo atenção à restrições de liberdade de expressão, repressão a opositores políticos e casos de trabalho forçado.​
 
 # DEFESA
 
